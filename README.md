@@ -1,5 +1,7 @@
 http://vox.dx.am
 
-alexand3r2@mail.ru
+https://dzen.ru/alexblr
 
-kicq 2655740
+https://youtube.com/@alexblr
+
+KICQ 2655740
