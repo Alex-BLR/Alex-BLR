@@ -1,27 +1,15 @@
-// HTML5 Games
-http://vox.dx.am
+HTML5 Games >>> http://vox.dx.am
 
-https://dzen.ru/alexblr
-https://youtube.com/@alexblr
+Pixel Kanvas >>> http://vox.dx.am/pk
 
-// Pixel Kanvas
-http://vox.dx.am/pk
+Pixel Canvas >>> http://vox.dx.am/pc
 
-// Pixel canvas
-http://vox.dx.am/pc
+Voxel Canvas >>> http://vox.dx.am/voxelcanvas
 
-// Voxel Canvas
-http://vox.dx.am/voxelcanvas
+Cosmogram >>> https://playme.ct.ws/cosmogram
 
-// Cosmogram
-https://playme.ct.ws/cosmogram
+Dzen >>> https://dzen.ru/alexblr
+
+Youtube >>> https://youtube.com/@alexblr
 
 KICQ 2655740
-
-┈┈┈┈┈┏┻━━┻┓┈┈┈┈┈
-╭┓┏╮┈┃▕▏▕▏┃┈╭┓┏╮ 
-┃┗┛┃┈┃┏┳┳┓┃┈┃┗┛┃ 
-╰┳┳╯┈┃┗┻┻┛┃┈╰┳┳╯ 
-┈┃┃┏━┻━━━━┻━┓┃┃┈ 
-┈┃╰┫╭━━━━━━╮┣╯┃┈ 
-┈╰━┫┃╱╲╱╲╱╲┃┣━╯┈
