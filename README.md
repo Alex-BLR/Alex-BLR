@@ -21,15 +21,3 @@ Telegram >>> https://t.me/horrorzine
 Telegram >>> https://t.me/gamedevcraft
 
 KICQ 2655740
-
-.
-
-☼´¯).¸.❉´¯)
-
-(¸☆´.(¸.☼´´¯`•.¸¸.❉☆
-
-♥..)*   
-
-...((♥           
-
-С██ 
